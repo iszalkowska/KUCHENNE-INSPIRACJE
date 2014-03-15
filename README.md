@@ -1,6 +1,9 @@
 KUCHENNE-INSPIRACJE
 ===================
 ##CIASTA i DESERY
+![baba](http://4.bp.blogspot.com/-ZHf5ix91Ul4/UtpoOID3t4I/AAAAAAAACsU/1KpzVL73NxI/s1140/blog3.jpg)
+
+
 
 ###TORT DACQUOISE – CUD WSZECHŚWIATA, KTÓRY NALEŻY SPRÓBOWAĆCHOCIAŻ RAZ W ŻYCIU
 ![BEZA](http://1.bp.blogspot.com/-a2VubmDO3Q8/T2uaNq_04II/AAAAAAAAASg/JhoabHTyrn0/s1600/tort+daquoise.jpg)
@@ -79,5 +82,7 @@ Na paterze położyć jeden z blatów bezowych. Przełożyć przygotowanym kreme
 
 
 SMACZNEGO :)
+
+
 
 
