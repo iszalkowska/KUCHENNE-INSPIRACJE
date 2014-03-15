@@ -52,3 +52,33 @@ Na paterze położyć jeden z blatów bezowych. Przełożyć przygotowanym kreme
 
 ###NAPOLEONKA
 ![NAPOLEONKA](http://www.mniammniam.com/obrazki/u_obrazki/n16425.jpg)
+NAPOLEONKA 
+CIASTO:
+-300g mąki pszennej
+-2 żółtka
+-100g cukru
+-125g masła
+-trochę śmietany
+-1 łyżeczka proszku do pieczenia
+
+
+KREM:
+-3 szklanki mleka
+-3 jajka
+-4 łyżki cukru
+-4 łyżki mąki
+-laska wanilii
+
+
+1. Z podanych składników zagnieść kruche ciasto-nie powinno się za bardzo lepić do rąk. Schłodzić przez pół godziny w lodówce. Ciasto podzielić na dwie równe części, każdą po kolei rozwałkować na ok. 0,5cm placek i piec w przygotowanej blaszce przez ok.25 minut (aż do lekkiego zarumienienia) w temperaturze 170st.
+
+
+2.Z laski wanilii wydrążyć wszystkie ziarenka, wrzucić je do mleka razem z korą. Zagotować całość i wyciągnąć korę z laski wanilii. Cukier utrzeć z jajkami, dosypać mąkę i wlać go gotującego się mleka, ciągle mieszać i uważać żeby nie powstały "gluty". Kiedy masa zgęstnieje zdjąć masę budyniową z ognia. Kiedy przestygnie rozsmarować równomiernie na jednym placku i przykryć drugim. Całość obficie posypać cukrem pudrem.
+
+
+*najlepiej smakuje gdy trochę postoi w lodówce-co najmniej jedną noc :)
+
+
+SMACZNEGO :)
+
+
