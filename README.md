@@ -3,7 +3,8 @@ KUCHENNE-INSPIRACJE
 ##CIASTA i DESERY
 
 ###TORT DACQUOISE – CUD WSZECHŚWIATA, KTÓRY NALEŻY SPRÓBOWAĆCHOCIAŻ RAZ W ŻYCIU
-Składniki na 2 bplackibezowe:
+![BEZA](http://1.bp.blogspot.com/-a2VubmDO3Q8/T2uaNq_04II/AAAAAAAAASg/JhoabHTyrn0/s1600/tort+daquoise.jpg)
+Składniki na 2 blackibezowe:
  6 dużych białek
  odrobina soli
  300-350 g drobnego cukru do wypieków
