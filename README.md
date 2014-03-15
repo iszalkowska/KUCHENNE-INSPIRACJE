@@ -2,7 +2,7 @@ KUCHENNE-INSPIRACJE
 ===================
 ##CIASTA i DESERY
 
-###TORT DACQUOISE – CUD WSZECHŚWIATA, KTÓRY NALEŻY SPOŻYĆ CHOCIAŻ RAZ W ŻYCIU
+###TORT DACQUOISE – CUD WSZECHŚWIATA, KTÓRY NALEŻY SPRÓBOWAĆCHOCIAŻ RAZ W ŻYCIU
 Składniki na 2 bplackibezowe:
  6 dużych białek
  odrobina soli
@@ -21,7 +21,7 @@ Masę bezową wyłożyć na zaznaczone na papierze okręgi, wyrównać.
 
 Wstawić do nagrzanego do 180ºC piekarnika. Po 5 minutach zmniejszyć temperaturę do 140ºC i piec przez 90 minut. Bezy powinny się zarumienić, mogą również lekko popękać, ale przy dotyku powinny być suche i chrupkie. Wyłączyć piekarnik, uchylić drzwiczki i zostawić do wystygnięcia na kilka godzin lub całą noc.
 
-Składniki na krem:
+###Składniki na krem:
 
  250 g serka mascarpone
  300 ml śmietany kremówki 30%
@@ -42,8 +42,8 @@ Dodatkowo:
  cukier puder do oprószenia
  daktyle i orzechy do dekoracji
 
-Wykonanie
+DO ROBOTY :)
 
 Na paterze położyć jeden z blatów bezowych. Przełożyć przygotowanym kremem i przykryć drugim blatem bezowym. Oprószyć cukrem pudrem, udekorować daktylami i orzechami.
 
-Smacznego :-).
+życzę SMACZNEGO :)
