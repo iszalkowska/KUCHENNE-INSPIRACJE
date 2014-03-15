@@ -1,7 +1,7 @@
 KUCHENNE-INSPIRACJE
 ===================
 ##CIASTA i DESERY
-![baba](http://4.bp.blogspot.com/-ZHf5ix91Ul4/UtpoOID3t4I/AAAAAAAACsU/1KpzVL73NxI/s1140/blog3.jpg)
+![baba](http://www.w-spodnicy.pl/g/Kobieta.obiekt2.aspx/380/0/Kobieta/0d78cf78-7e08-48c1-a6c4-6453c96b7f49_20110127041315_Przepisy-na-babeczki.jpg)
 
 
 
