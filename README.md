@@ -48,3 +48,7 @@ DO ROBOTY :)
 Na paterze położyć jeden z blatów bezowych. Przełożyć przygotowanym kremem i przykryć drugim blatem bezowym. Oprószyć cukrem pudrem, udekorować daktylami i orzechami.
 
 życzę SMACZNEGO :)
+
+
+###NAPOLEONKA
+![NAPOLEONKA](http://www.mniammniam.com/obrazki/u_obrazki/n16425.jpg)
